@@ -30,7 +30,7 @@ Who in interpretive dance, neither has pain to be his master, nor is willing fac
 
 Who by awakening, contains all lessons, and adventures, and triumph and disaster alike; and whose heart only grows bigger to contain every fracture or ache, who bows to all that is human,
 
-Who not only sees by looking at content of character but also the full sum of a person's history; and thus will neither falter and fail to liars, nor be taken in by the perfect stories of pretenders,
+Who not only sees by looking at content of character but also the full sum of a person's history; and thus will neither falter and fail to liars, nor be taken in by the flawless stories of pretenders,
 
 Who wants the world to know it needs not, its vice and crutch; but wisdom and love only; and once we are free from all the imaginary borders; Wisdom, like gravity will act to converge the Human Family, in Health and Peace, together,
 
