@@ -18,7 +18,7 @@ Who believed all could leap tall buildings in a single bound, and leaped contine
 
 Who will never fall down to gnash teeth, or let her or his tools wear down when faced with an uncertain future that may neither have recurrence, nor ends, or may end too soon,
 
-Who in authenticity can face anything or everything, and by subtle analogy discover and fix problems long before they start, seeing most distant heights to reach as new beginnings for all that are yet to come,
+Who in authenticity can face anything or everything, and by subtle analogy discover and fix problems long before they start, seeing most distant heights to reach as new beginnings,
 
 Who will steady down those who made mistakes and teach them, to guard at the gateways of no return; so that they may find meaning in preventing others from breaking too,
 
