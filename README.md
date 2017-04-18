@@ -1,6 +1,6 @@
 # Kosmos,
 
-Who, constructing the world for herself or himself, understands, and in a balance; that it is all of us, or none; that we must strive above the common level of life, inseparable together,
+Who, constructing the world for herself or himself, understands, and in a balance; that it is all of us or none; that we must each strive to live above the common level of life,
 
 Who won't ever cower to switch off; or take the half truth, or the easier wrong, or lie, or cheat, or steal, or tolerate any of those who do,
 
