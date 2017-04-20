@@ -22,7 +22,7 @@ Who in authenticity can face anything or everything, and by subtle analogy disco
 
 Who will steady down those who made mistakes and teach them, to guard at the gateways of no return; so that they may find meaning in preventing others from breaking too,
 
-Who will sense invisible prison walls, and claw to tear them down, and survive, and thrive at the beaches facing the starlight of the unfolding universe before them,
+Who will sense invisible prison walls, and claw to tear them down, and survive, and thrive, at the beaches facing the starlight of unfolding universe,
 
 Who by enlightenment alone, can hang on to the thinnest thread, and ten minutes forevermore; make each day longer and better than the previous, shaping time and future; the forging of a destiny,
 
