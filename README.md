@@ -38,4 +38,4 @@ Who believes we cannot be taught and it is up to each of us to seek out wisdom a
 
 Who has compassion and enlightenment for all, and all that is all too human; and will not force one thing to become two for shortcut's sake, and protect the sacred borders thereof.
 
-Who by wandering the word, saw ends in shortcuts and shortcuts as delayed ends; and discovered the only way, and the right way, is the longest possible way there.
+Who by wandering the world, saw ends in shortcuts and shortcuts as delayed ends; and discovered the only way, and the right way, is the longest possible way there.
