@@ -1,0 +1,16 @@
+body {
+}
+
+.poem {
+  border-bottom: 4px double silver;
+  padding-top: 5rem;
+  padding-bottom: 3rem;
+}
+
+.line {
+ 
+}
+
+.print-only {
+  display: none;
+}
