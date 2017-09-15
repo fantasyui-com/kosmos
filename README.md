@@ -1,4 +1,6 @@
-# Kosmos by Dr. Miou
+# Kreation
+
+Poem Printing Framework
 
 ## Usage
 
