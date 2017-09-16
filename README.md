@@ -1,15 +1,3 @@
-# Kreation
-
-Poem Printing Framework
-
-## Usage
-
-1. Store poem in poem.yaml.
-2. run ```npm run build```
-3. generated data will be stored in ./dist
-
-## Example (see poem.yaml for source)
-
 # Kosmos by Dr. Miou
 
 
@@ -61,3 +49,4 @@ Who believes we cannot be taught and it is up to each of us to seek out wisdom a
 Who has compassion and enlightenment for all, and all that is all too human; and will not force one thing to become two for shortcut's sake, and protect the sacred borders thereof.
 
 Who by wandering the world, saw ends in shortcuts and shortcuts as delayed ends; and discovered the only way, and the right way, is the longest possible way there.
+
