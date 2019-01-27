@@ -8,7 +8,7 @@ Who won't ever cower to switch off; or take the half truth, or the easier wrong,
 
 Who time after time, rose from the ground for the next strike, only to win, by not becoming the snarling beasts they were,
 
-Who deep in disaster never needed names for Restraint, Dignity, Nobility, Unbreakability, Fortitude, Courage, Honor, Love; and Insight; and Understanding; and Authenticity; and Heroism;
+Who deep in disaster never needed names for Restraint, Dignity, Nobility, Unbreakability, Fortitude, Courage, Honor, Love; and Insight; and Foresight; and Understanding; and Authenticity; and Heroism;
 
 
 Who believes that the wellspring of compassion or heroism; is self compassion, or becoming a hero to herself or himself first,
